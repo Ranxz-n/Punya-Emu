@@ -1,2 +1,0 @@
-# Punya-Emu
-Yaudah
